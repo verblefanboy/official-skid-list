@@ -30,8 +30,7 @@ SpecDaSavage - legit cant even make a boolean.
 
 Alerthie - skidded Spectre
 
-
-KixKKK - stole and ate all of x3's food.
+xXx_KiX_xXX - creator of the famous Glawk client, skidded all of OG's modules
 
 
 
