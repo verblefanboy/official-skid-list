@@ -1,5 +1,5 @@
 # Official Skid List
-Koolotta - Dramaalert Dev, abyss, virtue and 13 different clients in one.\n
+Koolotta - Dramaalert Dev, abyss, virtue and 13 different clients in one.
 
 
 ThatN3RD - Memenight Dev, XIV, virtue and 40 different clients in one.
