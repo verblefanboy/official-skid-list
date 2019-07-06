@@ -32,5 +32,7 @@ Alerthie - skidded Spectre
 
 xXx_KiX_xXX - creator of the famous Glawk client, skidded all of OG's modules
 
+Verble - creator of Verble AntiLeak legit copy and pasted Alpha Antileak what a scum bag!
+
 
 
