@@ -34,5 +34,8 @@ xXx_KiX_xXX - creator of the famous Glawk client, skidded all of OG's modules
 
 Verble - creator of Verble AntiLeak legit copy and pasted Alpha Antileak what a scum bag!
 
+Kant - Pasted every client known to Minecraft to create The ultimate skid Luminosity.
+
+
 
 
