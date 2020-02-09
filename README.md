@@ -36,6 +36,14 @@ Verble - creator of Verble AntiLeak legit copy and pasted Alpha Antileak what a 
 
 Kant - Also known as Dxlton, known ratter. pasted Async Rat and Ratty to make Vis.Remote
 
+Hippo - The self proclaimed "asm god" really paste everything from GraxCode and stackoverflow.
+
+Zane - the biggest mc skid. Transfered IMGUI skeet ui to minecraft.
+
+Vladymyr - Creator of Remix Client AKA Jigsaw legit can't even bypass vanilla
+
+Mees - Creator of Remix Client, put a rat in it to get CP for his collection
+
 
 
 
